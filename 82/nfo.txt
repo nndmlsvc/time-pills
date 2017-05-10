@@ -1,0 +1,2 @@
+bpm 144
+C# scale
