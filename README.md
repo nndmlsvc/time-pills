@@ -5,11 +5,11 @@ This is a collection of tracks, stems, loops, presets, and even midi files by Ti
 
 Members: 
 
-Aleksandra Tomovic - Vocals (https://soundcloud.com/aleksandra- tomovic).
+Aleksandra Tomovic - Vocals (https://soundcloud.com/aleksandra-tomovic).
 
 Nenad Milosevic - Synths, drums, sound design, production and mastering (https://soundcloud.com/therootout). 
 
-Dusan Janjetovic - Synths, sound design, and production (https:// soundcloud.com/dusan-janjetovic). 
+Dusan Janjetovic - Synths, sound design, and production (https://soundcloud.com/dusan-janjetovic). 
 
 
 Cheers! 
