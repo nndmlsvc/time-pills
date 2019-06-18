@@ -11,6 +11,8 @@ Nenad Milosevic - Synths, drums, sound design, production and mastering (https:/
 
 Dusan Janjetovic - Synths, sound design, and production (https://soundcloud.com/dusan-janjetovic). 
 
+All work is licensed under CC BY-NC-ND 4.0 https://creativecommons.org/licenses/by-nc-nd/4.0/
+
 
 Cheers! 
 
